@@ -1,1 +1,1 @@
-# jcota08.github.io
+Map of My Favorite Destinations 
